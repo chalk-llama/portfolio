@@ -6,5 +6,5 @@
 - 😄 Pronouns: She/Her/Hers
 - ⚡ Fun fact: I own a four year old female rabbit named Thumper
 
-See me gym climb at: (https://www.instagram.com/chalk_llama/)
+See me gym climb, [here](https://www.instagram.com/chalk_llama/)
 
